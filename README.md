@@ -14,4 +14,5 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-###I am a student wanting to learn more. Glad to see you're reading this! Isn't it funny how you're not stopping reading this even though nothing of substance has been written? 
+### I am a student at IISER Bhopal. Always interested in learning about new stuff!
+Glad to see you're reading this! Isn't it funny how you're not stopping reading this even though nothing of substance has been written in this line? You can probably guess nothing useful will come out of reading this line but you're still reading it lol. 
